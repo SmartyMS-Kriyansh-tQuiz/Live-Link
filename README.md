@@ -1,1 +1,1 @@
-# SmartyMS
+open in Chrome then Refresh🤡
